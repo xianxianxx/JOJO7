@@ -1,0 +1,2 @@
+# JOJO7
+comic
